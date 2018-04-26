@@ -26,6 +26,8 @@ Liderzy w złej dziedzinie - **brak unbana** na forum.
 * [Sevenity](https://mrucznik-rp.pl/user/584-sevenity/) - udostępnianie prywatynch danych użytkownika, nadużywanie uprawnień, obrazy, włam na konto byłego administratora, wyciek danych ze slacka, zmarnowanie szansy i złamanie zasad cyrografu
 * [qetsiyah](http://mrucznik-rp.pl/user/252-qetsiyah/)/[Beverly Rockmond](https://mrucznik-rp.pl/user/14628-beverly-rockmond/) sell hajsu, lista bez ub, liczne multikonta, powrót po definitywnym usunięciu konta
 * [kotgio](https://mrucznik-rp.pl/user/2428-kotgio/) - sell hajsu
+* [komunista dowell](https://mrucznik-rp.pl/user/2127-komunista-dowell/) - liczne obrazy, 50 notatek (11.02.2018), offtop, multikonta, spam
+* [Oficer](http://mrucznik-rp.pl/user/98-oficer/) - obrazy, barzo bogata kartoteka.
 
 
 ## Kandydaci do listy bez unbana
@@ -53,7 +55,6 @@ Next time ban wbity prosto w czoło, nawet za najmniejszą pierdołę.
 * [Mistrz](https://mrucznik-rp.pl/user/1583-mistrz/)
 * [levisjeans](https://mrucznik-rp.pl/user/3388-etylonorheksedron/)
 * [sasquatch](http://mrucznik-rp.pl/user/608-sasquatch/)
-* [Oficer](http://mrucznik-rp.pl/user/98-oficer/)
 * [David King (David\_/BooYah)](http://mrucznik-rp.pl/user/605-david-king/)
 * [habemus krzysztof/hersh](https://mrucznik-rp.pl/user/3899-habemus-krzysztof/)
 * [Holltrailer](http://mrucznik-rp.pl/user/359-holltrailer/)
@@ -61,7 +62,6 @@ Next time ban wbity prosto w czoło, nawet za najmniejszą pierdołę.
 * [PHC](https://mrucznik-rp.pl/user/194-phc/) - udostępnianie i rozpowszechnianie zdjęć oraz danych osobowych usera forum
 * [Koraliczek](https://mrucznik-rp.pl/user/15075-koraliczek/) - udostępnianie i rozpowszechnianie zdjęć oraz danych osobowych usera forum
 * [Bleku/Blekuś](https://mrucznik-rp.pl/user/9598-bleku%C5%9B/) - udostępnianie i rozpowszechnianie zdjęć oraz danych osobowych usera forum
-* [komunista dowell](https://mrucznik-rp.pl/user/2127-komunista-dowell/) - liczne obrazy, 50 notatek (11.02.2018), offtop, multikonta, spam
 
 
 
