@@ -22,6 +22,7 @@ Liderzy w złej dziedzinie - **brak unbana** na forum.
 * [Sevenity](https://mrucznik-rp.pl/user/584-sevenity/) - udostępnianie prywatynch danych użytkownika, nadużywanie uprawnień, obrazy
 * [plewa](https://mrucznik-rp.pl/user/368-plewa/) - liczne obrazy, multikonta, nagminny offtop, spora kolekcja warnów
 * [gandalf](https://mrucznik-rp.pl/user/3465-gandalf/) - liczne obrazy i multikonta, offtop, ogromna kolekcja warnów (67 - zaraz za ALIBXBA)
+* [Galway Girl](https://mrucznik-rp.pl/user/10380-galway-girl/) - liczny offtop, obrazy, kolekcja warnów, niewykorzystana szansa.
 
 ## Kandydaci do listy bez unbana
 Next time ban wbity prosto w czoło, nawet za najmniejszą pierdołę.
